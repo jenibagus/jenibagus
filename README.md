@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @jenibagus
+- 👀 I’m interested in Web 3.0 & Crypto
